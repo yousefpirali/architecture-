@@ -1,2 +1,2 @@
-# architecture-
 Architectural designer utilizing civil engineering principles to address design challenges and create efficient, high-performance environments, with a focus on sustainable and energy-efficient green homes.
+<img width="2040" height="2560" alt="1_1 - Photo" src="https://github.com/user-attachments/assets/fa1dd154-cf25-4255-b5cb-682a1353c069" /><img width="1440" height="2560" alt="1_5 - Photo" src="https://github.com/user-attachments/assets/c53453b9-3b9a-468d-84b8-04570d06f4ed" /># architecture-
